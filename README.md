@@ -1,4 +1,4 @@
 Muzaffarnagar// Guna.
 Newbie.
-JUET'24
+JUET'24.
 XIX
